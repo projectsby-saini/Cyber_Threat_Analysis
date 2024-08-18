@@ -128,5 +128,7 @@ For any inquiries or questions, please contact me at:
 
 **Email:** divyanshsaini.mzn@gmail.com
 ## Screenshots 
+![Screenshot 2024-07-06 110309](https://github.com/user-attachments/assets/bd39f9f0-2e43-4f04-b38b-f6388297aedd)
+
 
 
